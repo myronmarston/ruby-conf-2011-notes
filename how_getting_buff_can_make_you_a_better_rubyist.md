@@ -41,3 +41,5 @@
 * "The Rapid Fat Loss Handbook: A Scientific Approach to Crash
   Dieting"--a hacker's approach to dieting.
 * Pick one thing and start it today!
+
+Idea: Airial arts. Could be really fun!
